@@ -1,0 +1,2 @@
+# edhar-jaa
+padhai kar
